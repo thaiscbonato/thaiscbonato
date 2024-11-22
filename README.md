@@ -9,4 +9,4 @@
 - ★ pronomes: ela/dela 
 - informações: 15, cinéfila, gótica e vício em cafeína. :)
 
-![](<div class="tenor-gif-embed" data-postid="5735305127593267385" data-share-method="host" data-aspect-ratio="1.17453" data-width="100%"><a href="https://tenor.com/view/dolores-oriordan-cranberries-when-youre-gone-gif-5735305127593267385">Dolores Oriordan Cranberries GIF</a>from <a href="https://tenor.com/search/dolores+oriordan-gifs">Dolores Oriordan GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
+![](https://media1.tenor.com/m/T5floGisULkAAAAd/dolores-oriordan-cranberries.gif)
