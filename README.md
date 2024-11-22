@@ -8,7 +8,8 @@
 - ★ contato: thais.bonato@escola.pr.gov.br & thais.caroline.bonato@gmail.com / ig: tatcrows / número de telefone: 55(41)97178432
 - ★ pronomes: ela/dela 
 - informações: 15, cinéfila, gótica e vício em cafeína. :)
-  [bauhaus](https://youtu.be/Qxqq5vahHKk?si=wwMbMhHQYd0DeW1C)
+
+  [bauhaus](https://youtu.be/Qxqq5vahHKk?si=wwMbMhHQYd0DeW1C) ★
 
 ![](https://media1.tenor.com/m/T5floGisULkAAAAd/dolores-oriordan-cranberries.gif)
 ![](https://media1.tenor.com/m/nVRH-fj311EAAAAd/edgar-allan-poe-my-beloved.gif)
